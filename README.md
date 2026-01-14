@@ -16,4 +16,4 @@ ___
 https://cityreporter.ru/zdravstvujte-u-menya-epilepsiya-pochemu-lyudi-ne-rasskazyvayut-o-diagnoze-pri-prieme-na-rabotu/
 <br>Спасибо за изображения.
 ## Автор
-© 2025 kievsky332
+© 2026 kievsky332
